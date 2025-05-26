@@ -1,5 +1,8 @@
-## Hi there 👋
-
+# Hello addict🧠🌿
+# 🍁My guys say I'm a jerk.😂
+# 🚬They believe that heavy drugs are pointless.👽
+# 🤚But I believe that this is the future of everyone.😏
+# 🌌So I'll see you in the new world in the near future.👁‍🗨
 <!--
 **untilted420/untilted420** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
