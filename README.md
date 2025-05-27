@@ -3,7 +3,7 @@
  🚬They believe that heavy drugs are pointless.👽 /
  🤚But I believe that this is the future of everyone.😏 /
  🌌So I'll see you in the new world in the near future.👁‍🗨 /
- <img align="right" alt="Coding" width="400" src="https://cdn.dribbble.com/users/1162077/screenshots/3848914/programmer.gif">
+ <img align="right" alt="Coding" width="400" src="[https://cdn.dribbble.com/users/1162077/screenshots/3848914/programmer.gif](https://yandex.ru/images/search?from=tabbar&img_url=https%3A%2F%2Fsteamuserimages-a.akamaihd.net%2Fugc%2F42316269060145061%2F5FD809567ED20310E63D3A8C2BCDDFD62D0EB112%2F%3Fimw%3D512%26imh%3D552%26ima%3Dfit%26impolicy%3DLetterbox%26imcolor%3D&lr=22&pos=1&rpt=simage&text=%D0%B3%D0%B8%D1%84%D0%BA%D0%B8%20%D1%87%D0%B5%D1%80%D0%BD%D1%8B%D0%B5)">
 <!--
 **untilted420/untilted420** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
