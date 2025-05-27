@@ -1,4 +1,4 @@
- <img align="right" alt="Coding" width="400" height="1000" src="https://github.com/untilted420/untilted420/blob/main/%D0%B3%D0%B8%D1%84%D0%BA%D0%B0%D0%B0%D0%B0%D0%B0%D0%B0%D0%B0%D0%B0%D0%B0.gif">
+ <img align="right" alt="Coding" width="400" height="400" src="https://github.com/untilted420/untilted420/blob/main/%D0%B3%D0%B8%D1%84%D0%BA%D0%B0%D0%B0%D0%B0%D0%B0%D0%B0%D0%B0%D0%B0%D0%B0.gif">
  
 # Hello addict🧠🌿
 
