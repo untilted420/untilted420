@@ -7,7 +7,8 @@
  
  🌌So I'll see you in the new world in the near future.👁‍🗨 
  
- ![123](https://github.com/untilted420/untilted420/blob/main/%D0%B3%D0%B8%D1%84%D0%BA%D0%B0%D0%B0%D0%B0%D0%B0%D0%B0%D0%B0%D0%B0%D0%B0.gif)
+ <img align="right" alt="Coding" width="400" src="[https://cdn.dribbble.com/users/1162077/screenshots/3848914/programmer.gif](https://github.com/untilted420/untilted420/blob/main/%D0%B3%D0%B8%D1%84%D0%BA%D0%B0%D0%B0%D0%B0%D0%B0%D0%B0%D0%B0%D0%B0%D0%B0.gif)">
+
 <!--
 **untilted420/untilted420** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
